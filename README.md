@@ -1,0 +1,2 @@
+# trckstrjill-resolusi
+ngetes aja
